@@ -1,1 +1,2 @@
-untuk download nya ada di sebelah kanan yang tulisan realease
+UNTUK DOWNLOAD NYA ADA DI SEBELAH KANAN BAWAH YG ADA TULISAN REALEASE
+
